@@ -1,14 +1,15 @@
-# Heading
-### smaller heading (up to 6 "#s" depending on size of heading you want)
+# Hello, it's me.
 
-text
+I go by many names. You can call me Photrim, turkle, Urpy, whatever I've designated myself in the server you're in.
 
-- bullet point
-- bullet point
-  - subpoint
+A little about me:
+- I moderate for the [BattleTabs Discord Server](discord.gg/battletabs)
+- I'm a busy guy, but I'll usually be available after 3 PM PST.
 
-**bold**
+I like playing video games. A few to name are
+- Battletabs
+- Roblox
+- Ultrakill
 
-_italicize_
 
-[text](link)
+
