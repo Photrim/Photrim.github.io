@@ -7,9 +7,10 @@ A little about me:
 - I'm a busy guy, but I'll usually be available after 3 PM PST.
 
 I like playing video games. A few to name are
-- Battletabs
-- Roblox
-- Ultrakill
-
+- [Battletabs](https://photrim.github.io/Battletabs)
+- [Inscryption](https://photrim.github.io/Inscryption/)
+- [Roblox](https://photrim.github.io/Roblox/)
+- [Ultrakill](https://photrim.github.io/Ultrakill/)
+- [Pawnbarian](https://photrim.github.io/Pawnbarian/)
 
 
