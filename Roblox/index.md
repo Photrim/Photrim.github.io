@@ -1,1 +1,24 @@
+# About me on Roblox:
 
+- Active player since 2015
+- I play games a lot for a bit, then switch to another one
+- I usually play fps/tps games, fighting games, survival games, and anything else that piques my interest
+- Some of my favorite games are:
+  - Decaying Winter
+  - Hours
+  - Entry Point
+  - Kohls Admin House
+  - Framed
+  - Mortem Metallum
+  - Knife Ability Test
+  - Funky Friday
+  - Prison Life
+  - Knife Simulator
+  - Critical Strike
+  - Dummies vs Noobs
+  - Noobs in Combat
+  - Typical Colors 2
+  - Guts & Blackpowder
+  - Survive and Kill the Killers in Area 51
+- Used to dabble with studio, but realized it sucks and stopped
+- Not playing as often anymore, because of school
