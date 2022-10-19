@@ -1,9 +1,14 @@
 # Hello, it's me.
 
-I go by many names. You can call me Photrim, turkle, Urpy, whatever I've designated myself in the server you're in.
+You're bored. You're bored, and you were randomly clicking peoples' profiles. Well, now you're here. Enjoy the reading material.
+I go by many names. You can call me Photrim, turkle, UrpyBurpy, whatever I've designated myself in the server you're in.
 
 A little about me:
-- I moderate for the [BattleTabs Discord Server](https://discord.gg/battletabs)
+- I moderate for the [BattleTabs Discord Server](https://discord.gg/battletabs) (haha discord mod so funny) 
+- Gamer
+- I'll listen to any music that sounds catchy
+- Usually chill
+- Lazy
 - I'm a busy guy, but I'll usually be available after 3 PM PST.
 
 I like playing video games. A few to name are
