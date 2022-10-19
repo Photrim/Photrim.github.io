@@ -7,6 +7,6 @@
 - One of the first to create and biggest advocate of OP FLEET, which was coracle, whale, catamaran, and longboat
 - Was inactive for about half a year before I got promoted to mod
 - I have a [google doc with all my suggestions](https://docs.google.com/document/d/1BOwbXOlt7jJ7XDTCMniq-juScWAeL2NWatiUwouIqiI/edit?usp=sharing), and I'm always adding  new stuff
-- Created the [BattleTabs Official Tier List maker](https://tiermaker.com/create/battletabs-ships-749959)
+- Created the [Official BattleTabs Tier List maker](https://tiermaker.com/create/battletabs-ships-749959)
 - The second oldest active member to the server
 - Coined the fleet names "Search & Destroy" and "Sweep & Annihilate"
