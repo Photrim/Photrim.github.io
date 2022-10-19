@@ -1,7 +1,7 @@
 # About me on BattleTabs:
 
 - I'm very active.
-- I'm kind of the community manager in the mod team.
+- I interact with the community the most out of the mod team.
 - I created the first custom emoji, the Dark Coracle, and then after that I made Goreacle, Christmacle, Light Coracle, and Coolacle.
 - Founded the Dark Order, and I'm in charge of the clan wars.
 - One of the first to create and biggest advocate of OP FLEET, which was coracle, whale, catamaran, and longboat.
